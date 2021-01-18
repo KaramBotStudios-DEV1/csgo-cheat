@@ -1,1 +1,1 @@
-# csgo-cheat
+# Cheating for beginners
